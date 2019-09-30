@@ -17,10 +17,12 @@ I'm just getting started with development in an industry setting and I can't wai
 
 ### What about outside of work?
 
-Outside of work, I really love photography (shameless plug to my [Instagram](https://www.instagram.com/atraynor97/) if you're interested). I *love* to get creative with lighting at night (light trails are one of my favourite things to shoot :grin:), or capture the beautiful architecture and stunning landscapes of the places I travel to. Here's a few of my most favourite shots!
+![Stitch playing the Ukulele](https://media.giphy.com/media/PGMqSJcVexVEQ/giphy.gif)
+
+Outside of work, I love to play the Ukulele! One of my favourite things to do is to head down to [Ukulele Wednesdays](https://ukulelewednesdays.com/) for a jam with friends - it's a fantastic mid-week stress reliever and a great laugh! I started playing at the beginning of uni and never looked back.
+
+Aside from that, I really love photography (shameless plug to my [Instagram](https://www.instagram.com/atraynor97/) if you're interested). I *love* to get creative with lighting at night (light trails are one of my favourite things to shoot :grin:), or capture the beautiful architecture and stunning landscapes of the places I travel to. Here's a few of my most favourite shots!
 
 > ![Dubrovnik ocean view](dubrovnik-oceanview.jpg) ![Light-up balloons on trafalgar square](lumiere.jpg) ![Boat passing under the chain bridge on the river Danube](danube.jpg) ![Small ice cream van](icecream.jpg)
 
-![Stitch playing the Ukulele](https://media.giphy.com/media/PGMqSJcVexVEQ/giphy.gif)
 
-Aside from that, I also love to play the Ukulele! One of my favourite things to do is to head down to [Ukulele Wednesdays](https://ukulelewednesdays.com/) for a jam with friends - it's a fantastic mid-week stress reliever and a great laugh! I started playing at the beginning of uni and never looked back.
