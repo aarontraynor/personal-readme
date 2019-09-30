@@ -21,6 +21,6 @@ Outside of work, I really love photography (shameless plug to my [Instagram](htt
 
 > ![Dubrovnik ocean view](dubrovnik-oceanview.jpg) ![Light-up balloons on trafalgar square](lumiere.jpg) ![Boat passing under the chain bridge on the river Danube](danube.jpg) ![Small ice cream van](icecream.jpg)
 
-Aside from that, I also love to play the Ukulele! One of my favourite things to do is to head down to [Ukulele Wednesdays](https://ukulelewednesdays.com/) for a jam with friends - it's a fantastic mid-week stress reliever and a great laugh!
-
 ![Stitch playing the Ukulele](https://media.giphy.com/media/PGMqSJcVexVEQ/giphy.gif)
+
+Aside from that, I also love to play the Ukulele! One of my favourite things to do is to head down to [Ukulele Wednesdays](https://ukulelewednesdays.com/) for a jam with friends - it's a fantastic mid-week stress reliever and a great laugh! I started playing at the beginning of uni and never looked back.
